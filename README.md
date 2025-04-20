@@ -12,6 +12,7 @@
 - 💬 Ask me about **Java, Python, ML, DBMS, OS, CN**
 
 - 📫 How to reach me **shubhangiathakare.skill@gmail.com**
+www.linkedin.com/in/shubhangi-thakare-4a458325b
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
